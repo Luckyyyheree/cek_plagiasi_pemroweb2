@@ -6,3 +6,11 @@ https://www.grammarly.com/plagiarism-checker?utm_source=bing&utm_medium=cpc&utm_
 
 
 Bukti Screenshoot:
+
+<img width="1870" height="886" alt="Screenshot 2026-04-24 153452" src="https://github.com/user-attachments/assets/264a51fe-6b6e-4187-b58f-917b03e0e467" />
+
+
+<img width="1906" height="917" alt="image" src="https://github.com/user-attachments/assets/8335271b-40d0-49ff-aa93-ffa74ffc89bb" />
+
+
+
